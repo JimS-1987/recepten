@@ -22,20 +22,24 @@ INGREDIENTS:
 
 INSTRUCTIONS:
  
-1. Chop the mushrooms into thin slices lengthways
-2. chop the red pepper into small bite size pieces.
-3. Chop the scallions at an angle into thin slices.
-4. Grate the ginger or finely chop it and the garlic.
-5. Chop the broccoli into florets and finely chop the stems, discarding any woody stalk pieces. 
-6. Finely slice the red chilli pepper.
-7. Heat sesame oil in a large flat pan over high heat, 
-   when hot add the mushrooms and cook for 5 minutes until they start to reduce and brown slightly.
-8. Add 1 tablespoon of tamari and stir to incorporate until it is all absorbed or evaporated (about 30 seconds).
-9. Add the:* ginger,* garlic,* half the scallions,* ½ of the chilli and red pepper   and reduce the heat to medium and continue to cook for 5- 8 minutes,
-   stirring occasionally until the peppers are cooked.
+1. Chop the mushrooms into thin slices lengthways.  
+2. chop the red pepper into small bite size pieces.  
+3. Chop the scallions at an angle into thin slices.  
+4. Grate the ginger or finely chop it and the garlic.  
+5. Chop the broccoli into florets and finely chop the stems, discarding any woody stalk pieces.   
+6. Finely slice the red chilli pepper.  
+7. Heat sesame oil in a large flat pan over high heat,   
+   when hot add the mushrooms and cook for 5 minutes until they start to reduce and brown slightly.  
+8. Add 1 tablespoon of tamari and stir to incorporate until it is all absorbed or evaporated (about 30 seconds).  
+9. Add the:  
+  * ginger
+  * garlic
+  * half the scallions
+  * ½ of the chilli and red pepper
+     and reduce the heat to medium and continue to cook for 5- 8 minutes,
+     stirring occasionally until the peppers are cooked.
 10.  Remove from the heat.
-   While the mushrooms are cooking,
-11. make your litre of stock and bring to a boil in a large pot, reduce to a simmer and whisk in:
+11. While the mushrooms are cooking, make your litre of stock and bring to a boil in a large pot, reduce to a simmer and whisk in:
   * 2 tbsp tamari
   * almond butter
   * the curry paste/ hp spicy pesto or harissa
