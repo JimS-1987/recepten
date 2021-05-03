@@ -36,19 +36,21 @@ INSTRUCTIONS:
 - garlic
 - half the scallions
 - ½ of the chilli and red pepper
-  and reduce the heat to medium and continue to cook for 5- 8 minutes,
-  stirring occasionally until the peppers are cooked.
 
-10. Remove from the heat.
-11. While the mushrooms are cooking, make your litre of stock and bring to a boil in a large pot, reduce to a simmer and whisk in:
+10. and reduce the heat to medium and continue to cook for 5- 8 minutes,
+    stirring occasionally until the peppers are cooked.
+
+11. Remove from the heat.
+12. While the mushrooms are cooking, make your litre of stock and bring to a boil in a large pot, reduce to a simmer and whisk in:
 
 - 2 tbsp tamari
 - almond butter
 - the curry paste/ hp spicy pesto or harissa
 - the tin of coconut milk
-  12.and bring to a simmer.
 
-13. Add the noodles and tenderstem broccoli and simmer for approx 4 minutes until the broccoli and noodles are just cooked.
-14. Using tongs transfer the noodles and broccoli to serving bowls and pour over the coconut broth.
-15. Top with the ginger mushrooms and peppers, garnish with the scallions, the remaining red chili, a few coriander leaves and a squeeze of lime juice.
-16. We also like to sprinkle over some sesame seeds to garnish.
+13. and bring to a simmer.
+
+14. Add the noodles and tenderstem broccoli and simmer for approx 4 minutes until the broccoli and noodles are just cooked.
+15. Using tongs transfer the noodles and broccoli to serving bowls and pour over the coconut broth.
+16. Top with the ginger mushrooms and peppers, garnish with the scallions, the remaining red chili, a few coriander leaves and a squeeze of lime juice.
+17. We also like to sprinkle over some sesame seeds to garnish.
