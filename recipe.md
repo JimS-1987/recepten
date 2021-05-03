@@ -9,7 +9,7 @@ INGREDIENTS:
  * 15 g fresh Ginger – thumb size
  * 1 large clove of Garlic
  * 1 tbsp tamari
-*Broth;
+* Broth;
  * 60 g/ 4 large tbsp HP spicy red pepper pesto or harissa or thai red curry paste
  * 1 can coconut milk
  * 1 Tbsp sriracha – optional- if you prefer more heat
